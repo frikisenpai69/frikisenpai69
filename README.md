@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-<a href="https://frikiunicorn67.straw.page">strawpage 0_o</a> 
+<a href="https://https://freakbob67.straw.page">strawpage 0_o</a> 
 
 </p>
 ㅤ 
